@@ -1,1 +1,1 @@
-# class-46-mario-2.0-trishnas-
+# byju-mario-2.0-game-trishna-s
